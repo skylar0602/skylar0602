@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @skylar0602@skylarhwan
+- 👋 Hi, I’m  @skylar0602  @skylarhwan(Lost account :( all codes gone)
 - 👀 I’m interested in AI Web3 
 - 🌱 I’m currently learning how to behavior like an adult properly
 - 💞️ I’m looking to collaborate on ...\\
